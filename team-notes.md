@@ -1,1 +1,1 @@
-Team motto: To be decided.
+Team motto: Code, test, improve.
