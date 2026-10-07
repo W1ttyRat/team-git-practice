@@ -1,1 +1,1 @@
-Team motto: all tests pass
+Team motto: Commit, collaborate, conquer! 🚀
