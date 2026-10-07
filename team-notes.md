@@ -1,1 +1,1 @@
-Team motto: Code, test, improve.
+Team motto: Commit, collaborate, conquer! 🚀
